@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development
 - 🌱 I’m currently learning as a newbie
 - 💞️ I’m looking to collaborate on simple projects
-- 📫 How to reach me via ig
+- 📫 Instagram : @c0zynesttt
 - 😄 Pronouns: she
 - ⚡ Fun fact: I love reading
 
